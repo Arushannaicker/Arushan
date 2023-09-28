@@ -1,2 +1,2 @@
 # Arushan
-My namw is Arushan Naicker.
+My name is Arushan Naicker.
